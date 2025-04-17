@@ -11,7 +11,4 @@
 - 📫 How to reach me esther1kamerhe@gmail.com
         DMs open, carrier pigeons tolerated, smoke signals…eh, let’s stick to email.
   
-- 😄 Pronouns: she/her
-        (also accepts "wizard," "code whisperer," or "human who definitely sleeps enough")
-  
 - ⚡ Fun fact: I can debug code in my sleep…literally. My keyboard has permanent indentations from my face. 💻😴
